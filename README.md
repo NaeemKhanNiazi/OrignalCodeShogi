@@ -1,1 +1,1 @@
-# OrignalCodeShogi
+duzzzzzzzzzzzzzzzzzzzzzz
